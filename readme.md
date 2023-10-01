@@ -1,0 +1,1 @@
+Páginas com tabela com mídias favoritas e gastos de contas (infelizmente parei a terapia por motivos financeiros, espero fica bem).
